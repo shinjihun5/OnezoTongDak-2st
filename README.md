@@ -2,7 +2,7 @@
 
 
 
-## PPT 주소
+## ppt 주소
 
   - https://www.canva.com/design/DAGGrppJ6gA/a3NcLroCpFNWjgDrjmMzkw/edit?utm_content=DAGGrppJ6gA&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
 
