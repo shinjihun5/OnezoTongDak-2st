@@ -8,8 +8,10 @@
 
 ## 노션 주소
 
+1차
   - https://bustling-textbook-8ce.notion.site/OneZo-aadbc84213e34b438c5d5be142ca2e62?pvs=4
-
+2차
+  - https://bustling-textbook-8ce.notion.site/3-d579d0b2cde94599a5473136e7b2d513?pvs=4
 
 ## 맡은 역할
 
